@@ -1,2 +1,0 @@
-# daelalvesdemoura.github.io
-alfa
